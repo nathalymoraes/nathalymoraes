@@ -1,4 +1,4 @@
-### Oi! Eu sou a Nathaly Moraes ✨
+### Oi! Eu sou a Nathaly Moraes, matemática, progamadora e que gosta de dados c:
 
 <div align="center">
   <a href="https://github.com/nathalymoraes">
